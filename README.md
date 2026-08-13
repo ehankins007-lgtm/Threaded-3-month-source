@@ -1,2 +1,2 @@
 # Threaded-3-month-source
-shush
+support me at discord.gg/printed
